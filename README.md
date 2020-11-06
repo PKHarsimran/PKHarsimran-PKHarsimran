@@ -43,8 +43,3 @@ EDUCATION
 Certificate in Cybersecurity: University of Toronto, Toronto, ON 
 Bachelor of Engineering Technology in Electronics and controls: Cape Breton University, Sydney, NS
 Advance Diploma in Electromechanical Engineering: Humber College, Toronto, ON
-
-Work Authorization Status: Canadian Citizen
-Preferred Job Location: Anywhere in Canada or USA
-Willingness to Relocate: Yes
-Expected Compensation (per annum): $40,000
