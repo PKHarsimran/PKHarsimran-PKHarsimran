@@ -1,7 +1,6 @@
 # PKHarsimran-PKHarsimran
 Resume and little bit about me 
 
-
 Harsimran Sidhu
 Brampton, ON L6R3L9
 Phone: +1-647-770-4926 | Email: harsimransidhuit@gmail.com
